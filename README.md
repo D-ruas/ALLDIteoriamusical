@@ -1,2 +1,2 @@
-# ALLDIteoriamusical
+# ALLDI teoriamusical
 Alldi Teoria Musical
